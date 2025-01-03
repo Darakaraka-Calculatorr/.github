@@ -2,6 +2,7 @@
 # Discover Your Soulmate with the Darakaraka Calculator
 
 Are you curious about who your soulmate might be? The **Darakaraka Calculator** is a fascinating tool derived from Vedic astrology that can help uncover the qualities of your life partner. If you're exploring your astrological chart to better understand relationships, this guide will illuminate how the Darakaraka Calculator works and why it's gaining popularity.
+
 👉 **[Darakaraka Calculator](https://frontendin.com/darakaraka-calculator/)** ✨😊
 
 👉 **[Darakaraka Calculator](https://frontendin.com/darakaraka-calculator/)** ✨😊
